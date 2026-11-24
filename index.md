@@ -1,6 +1,6 @@
 # Krystal Dawn Patterson
 
-*Aspiring Marketing Analyst | Storyteller | Data-Driven Creative*
+*Aspiring Marketing Analyst · Storyteller · Data-Driven Creative*
 
 ## Welcome
 
