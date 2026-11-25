@@ -30,6 +30,8 @@ Coming Soon
 
 ## About Me
 
+![Krystal Dawn Patterson](https://github.com/Kryss415.png?size=200)
+
 Before data, I directed films, including a USC thesis film completed entirely over Zoom during COVID and an independent short that advanced to the third round of selection at South by Southwest. I also taught myself to code and built two playable games. I bring a director's eye for audience and a learner's drive to every project.
 
 ## Contact
